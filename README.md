@@ -1,2 +1,5 @@
-# Cybersecurity-portfolio
-My portfolio for showcasing my progress and achievements in cybersecurity.
+Sir Taevon Garner
+Atlanta, Georgia
+Prior IT Experience - I am both tech savvy while also being a novice when it comes to being hands on with software and hardware. I've always been driving to tech and the many possiblities there are within the tech industry alone. Im passsoinate about being a student and look forward to seeing my growth.
+I aspire to be a DOD contract Ethical Hacker, I told myself this was the goal when I grew my passion for cyber security. Im interested in knowing the in's and out's of IT so I can have a better understanding of how things work together and operate alone. Better understanding the functionality of system's and how they all work cohesively together.
+Proud Moment - I am most proud of finding my wife, my daughter, embarking on this journey with the City of Refugee along with joining the Air Force. Joinin the Air Force I was able to see myself perservere through a goal of mine that I set out to achieve when graduating high school. Alone and mile away from home I kew that what I was doing was going to shape me as a Man while simutaneously shaping my future. I thank God for all that hes done and continues to do.
